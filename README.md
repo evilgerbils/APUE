@@ -1,0 +1,2 @@
+- Video lectures https://www.youtube.com/playlist?list=PL0qfF8MrJ-jxMfirAdxDs9zIiBg2Wug0z
+- Course website https://stevens.netmeister.org/631/
